@@ -1,0 +1,1 @@
+RPG where you play a professional corporate spy attempting to gather evidence to force the company to reform or bring it down altogether.
